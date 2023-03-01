@@ -1,0 +1,1 @@
+# ITookLinearAlgebraAtRU_ICouldHaveWorkedOnPennAIIfTheyAsked_IWouldntHaveBeenAbleToLeaveLikeMyCoworker
